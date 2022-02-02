@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kyleF9
 - 👀 I’m interested in games, stuff and all.
 - 🌱 I’m currently learning coding, my friend will help me on it.
-- 💞️ I’m looking to collaborate on some of my friends.
+- 💞️ I’m looking to collaborate with some of my friends.
 - 📫 How to reach me is by messgaing me on discord or roblox.
 
 <!---
